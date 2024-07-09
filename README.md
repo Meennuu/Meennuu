@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey! I graduated in Computer Science from Barani Institute of Information Technology. My goal is to utilize my technical skills and knowledge to make a meaningful impact in the field of computer science. I'm eager to contribute to innovative projects and collaborate with like-minded professionals.✨<br><br>In free time I continuously honing my skills in UI/UX design🖥️ .<br><br>Driven and determined to give my best in everything I do, constantly pushing myself to achieve new heights....✨
+I graduated in Computer Science from Barani Institute of Information Technology. My goal is to use what I've learned to make a positive impact in the computer science field. I'm excited to work on new and creative projects with like-minded professionals.✨ <br>In my free time, I'm always working to improve my skills in UI/UX design.🖥️ <br>I'm motivated to do my best in everything I do and I'm constantly challenging myself to achieve more.✨
 
 
 ## 🌐 Socials:
